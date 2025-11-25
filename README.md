@@ -2,13 +2,9 @@
 
 Guatemalan Mayans with green card nicknaming 'the Hots' to the Honduran peasants in Pawnee county ...
 
-gomaLoka is a mutation of the graffiti , no profit for the original gomaloca crew.
+Las niñas hacen el amor detras de los pinos y una gran ardilla les aparece un casa magica ...
 
-no hay limosnas de Reagan , ni carne con dolares de mormones, pero si mota salvaje en las praderas.
-
-Central American teachers begging for former students who were circumcised and castrated for being tricked into attending private high schools their parents didn't pay for. Crying Guatemalans who sold their penises in San Jose.
-
-The Pawnee county peoples wont give them any money, Tha Afganistan war is Lost ...
+Voten por MOLOTOV!! 
 
 Cool and Quite Lennie Tristano Buddy de Franco
 
