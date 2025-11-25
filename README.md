@@ -4,7 +4,7 @@ Guatemalan Mayans with green card nicknaming 'the Hots' to the Honduran peasants
 
 Las niñas hacen el amor detras de los pinos y una gran ardilla les aparece un casa magica ...
 
-Voten por MOLOTOV!! 
+Voten por MOLOTOV!! Mataron a los del Cartel del Golfo en Nayarit , los descabezaron en Tapachula, dejaron la plata en San Salvador.  
 
 Cool and Quite Lennie Tristano Buddy de Franco
 
